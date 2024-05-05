@@ -1,6 +1,6 @@
 ### Hi there 👋
 - 👋 Hi, I’m @Fadhlan
-- 👀 I’m Tesnet And Airdrop Hunter
+- 👀 I’m Testnet And Airdrop Hunter
 - 📫 How to reach me abiyk12@gmail.com
 
  <p align=center>
