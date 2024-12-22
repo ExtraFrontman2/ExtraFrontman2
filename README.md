@@ -1,6 +1,6 @@
 ### Hi there 👋
 - 👋 Hi, I’m @Fadhlan
-- 👀 I’m Testnet And Airdrop Hunter
+- 👀 I’m interested to learn web3 and programming 
 - 📫 How to reach me abiyk12@gmail.com
 
  <p align=center>
